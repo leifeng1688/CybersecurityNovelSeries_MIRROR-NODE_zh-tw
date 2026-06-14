@@ -1,1 +1,1 @@
-# CybersecurityNovelSeries_MIRROR-NODE_zh-tw
+# 資安小說系列 — 《鏡像節點》
